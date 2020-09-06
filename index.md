@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hallo Lenie
 
-I'm glad you are here. I plan to talk about ...
+Dat was lekkere koffie
